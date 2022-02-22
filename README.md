@@ -1,0 +1,2 @@
+- 👋 Hi, I’m EdricHe
+- 📫 Reach me at GodfatherHY@icloud.com
